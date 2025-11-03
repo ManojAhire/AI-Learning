@@ -1,1 +1,2 @@
-# AI Learning Journey
+# AI LEARNING JOURNEY
+
